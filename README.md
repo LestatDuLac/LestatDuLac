@@ -30,9 +30,11 @@ one of our main fronters is Finn dont get us mixed up
  - Mysterious Skin
  - FNaF
  - Forsaken
- - Cookie Run Kingdom
+ - TADC
  - Fashion Designing
  - Drawing
+ - Rupaul's Drag Race
+ - Drag
    
 ***PEOPLE MENTION TIME***
 
