@@ -71,5 +71,6 @@ one of our main fronters is Finn dont get us mixed up
 - CREEPS, WEIRDOS, PDFS LARGE DNI!!
 - RACISMS , HOMOPHOBIA, ANYTHING ALONG THE LINES OF A BASIC DNI, DONT.
 - TALKING ABOUT PAST TRAUMA.
+- YOURE AN ADULT WHO CANT HANDLE SHIT,if youre acting like your 15 with hella triggers n bullshit.. dont interact. get help instead of being online.
 
 ![](https://i.postimg.cc/wT3N6zpS/IMG-3773.png)
