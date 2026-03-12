@@ -39,8 +39,8 @@ one of our main fronters is Finn dont get us mixed up
 ***PEOPLE MENTION TIME***
 
 - THE PEOPLE !! ; i love yall sm my irl group
-- Elaine ; My gf , Shes so sweet but she pmooooo ily /lh
-- Sapphire / Chishiya; this is literally like my best frined like omg 
+- ANGEL : UGH OUR BELOVED BEST FRIEND WWE LOVELOVELOVE YOU
+- Sapphire / Chishiya; this is literally like my best friend like omg 
 - Tex; HHIHIHI this is like one of my online parents i love him smsmsm hiii
 ![](https://i.postimg.cc/j5sWB0cM/IMG-3769.png)
 
