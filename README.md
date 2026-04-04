@@ -2,7 +2,7 @@
 
 # *WELCOME !!*
 
-![image](https://i.postimg.cc/bv1bKRht/IMG-3772.png)
+![image](https://i.postimg.cc/260Y533m/Untitled228-20260404184926.png)
 
 ***About me! ^^:***
 
@@ -15,7 +15,7 @@ one of our other hosts are Valentino!!
 - c+h freely but if im sitting with my friends please do not do this.
 - Most of the time i am either offtab or s-afk so its better if you whisper to interact, beware it may take me a moment
 - If im making you uncomfortable or anything TELL ME, i am NOT a mind reader.
-![](https://i.postimg.cc/j5sWB0cM/IMG-3769.png)
+![](https://i.postimg.cc/tRmyQ1LM/IMG-4476.png)
 
 ***Pronounz!:***
 
@@ -42,7 +42,7 @@ one of our other hosts are Valentino!!
 - ANGEL : UGH OUR BELOVED BEST FRIEND WWE LOVELOVELOVE YOU
 - Sapphire / Chishiya; this is literally like my best friend like omg 
 - Tex; HHIHIHI this is like one of my online parents i love him smsmsm hiii
-![](https://i.postimg.cc/j5sWB0cM/IMG-3769.png)
+![](https://i.postimg.cc/tRmyQ1LM/IMG-4476.png)
 
 ***BYI!:***
 
@@ -61,7 +61,7 @@ one of our other hosts are Valentino!!
 - Do not vent to me unless you're a friend/close friend please, and if so pleasse ask !
 - WE DO SMOKE AND DRINK!! If you are uncomfortable with that its best to not interact, as we smoke for our medication. Medicinal.
 
-![](https://i.postimg.cc/j5sWB0cM/IMG-3769.png)
+![](https://i.postimg.cc/tRmyQ1LM/IMG-4476.png)
 
 ***DNI:***
 
@@ -73,4 +73,4 @@ one of our other hosts are Valentino!!
 - RACISMS , HOMOPHOBIA, ANYTHING ALONG THE LINES OF A BASIC DNI, DONT.
 - TALKING ABOUT PAST TRAUMA, i am not ur therapist.
 - 21+ w 100+ triggers n bullshit.. youre chronically online, please, get a therapist,
-![](https://i.postimg.cc/wT3N6zpS/IMG-3773.png)
+![](https://i.postimg.cc/KYNS94Pp/Untitled228-20260404184926.jpg)
