@@ -73,4 +73,4 @@ one of our other hosts are Valentino!!
 - RACISMS , HOMOPHOBIA, ANYTHING ALONG THE LINES OF A BASIC DNI, DONT.
 - TALKING ABOUT PAST TRAUMA, i am not ur therapist.
 - 21+ w 100+ triggers n bullshit.. youre chronically online, please, get a therapist,
-![](https://i.postimg.cc/KYNS94Pp/Untitled228-20260404184926.jpg)
+![](https://i.postimg.cc/FsJMMTbf/IMG-4478.png)
