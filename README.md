@@ -6,8 +6,8 @@
 
 ***About me! ^^:***
 
-Hii, im Ribbit / Phinn 
-one of our main fronters is Finn dont get us mixed up
+Hii, im Ribbit / Phinn bodily 18 
+one of our other hosts are Valentino!!
 - I am a DID system, be patient with us please.
 - DNI IF YOU ARE IF YOUR AN ADULT AND ACT LIKE A CHILD. I dont like sensitive people and wont change for you.
 - Beware that my mood and typing changes at times and I tend to be dry from time to time, please tell me if tone tags are needed.
@@ -70,7 +70,6 @@ one of our main fronters is Finn dont get us mixed up
 - FAKECLAIMERS BIG BIG DNI.
 - CREEPS, WEIRDOS, PDFS LARGE DNI!!
 - RACISMS , HOMOPHOBIA, ANYTHING ALONG THE LINES OF A BASIC DNI, DONT.
-- TALKING ABOUT PAST TRAUMA.
-- YOURE AN ADULT WHO CANT HANDLE SHIT,if youre acting like your 15 with hella triggers n bullshit.. dont interact. get help instead of being online.
-
+- TALKING ABOUT PAST TRAUMA, i am not ur therapist.
+- 21+ w 100+ triggers n bullshit.. youre chronically online, please, get a therapist,
 ![](https://i.postimg.cc/wT3N6zpS/IMG-3773.png)
