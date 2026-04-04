@@ -47,6 +47,7 @@ one of our other hosts are Valentino!!
 ***BYI!:***
 
 - I AM VERY BLUNT AND TEND TO BE RUDE WHEN I AM UPSET, this does not mean you've done anything, and this DOESNT MEAN IM TAKING IT OUT ON YOU, it is difficult to control how i type or talk in my moments, i too have my own issues.
+- IF our name doesn't have w2i we will not respond to whispers
 - My mood bounces everywhere, AND SO DO MY TOPICS; if im changing topics to quickly or something i said isnt making sense, TELL ME, again im NOT a mind reader; if you dont tell me thats on you, not me.
 - Going for everything on this BE HONEST WITH ME, if i am doing things you dont like or make you uncomfortable, PLEASE TELL ME i don't intend to make people uncomfortable
 - PLEASE NEVER GET MAD AT ME OVER THESE THINGS AS IT IS HARD TO READ PEOPLE OVER A SCREEN, I ALSO HAVE MY OWN ISSUES THAT AFFECT THE WAY I BEHAVE OR ACT, THIS IS NOT AN EXCUSE THIS IS A WARNING.
