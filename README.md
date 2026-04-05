@@ -8,6 +8,7 @@
 
 Hii, im Ribbit / Phinn bodily 18 
 one of our other hosts are Valentino!!
+-If youre looking to chat don't sit there and stare, talk to us, we will not know youre wanting to speak to us. This is a game full of random people, we dont want to bother people who may not be looking to chat with us.
 - I am a DID system, be patient with us please.
 - DNI IF YOU ARE IF YOUR AN ADULT AND ACT LIKE A CHILD. I dont like sensitive people and wont change for you.
 - Beware that my mood and typing changes at times and I tend to be dry from time to time, please tell me if tone tags are needed.
