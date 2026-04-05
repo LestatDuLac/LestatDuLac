@@ -35,6 +35,7 @@ one of our other hosts are Valentino!!
  - Drawing
  - Rupaul's Drag Race
  - Drag
+ - Interview with the Vampire
    
 ***PEOPLE MENTION TIME***
 
