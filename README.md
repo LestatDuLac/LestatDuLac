@@ -24,7 +24,7 @@ one of our other hosts are Valentino!!
 
  ***Some interestzz:***
  
- - True Crime
+ - Eddsworld
  - Horror
  - Sitcoms, reality tv; south park, family guy, american dad, futurama, Simpsons, The office, rick and morty, bojack horseman, regular show
  - Mysterious Skin
